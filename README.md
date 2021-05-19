@@ -1,2 +1,0 @@
-# NoobXDownload
-Download noob X:)
